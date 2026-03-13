@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LERB920820HMCNMR02
+LERB920820HMCNMR02
